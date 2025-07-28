@@ -16,3 +16,5 @@ Conects :bomb:
    [![discord](https://cdn-icons-png.flaticon.com/128/5968/5968759.png)](https://discord.gg/QMuGFAFP)
    [![X](https://cdn-icons-png.flaticon.com/128/5968/5968958.png)](https://x.com/c4z1136807)
   
+<br>
+
