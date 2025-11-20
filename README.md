@@ -13,7 +13,7 @@ Conects :bomb:
 <br>
 
    [![Instagram](https://cdn-icons-png.flaticon.com/128/1384/1384031.png)](https://www.instagram.com/c4zz.ofc01)
-   [![discord](https://cdn-icons-png.flaticon.com/128/5968/5968759.png)](https://discord.gg/QMuGFAFP)
+   [![discord](https://cdn-icons-png.flaticon.com/128/5968/5968759.png)](https://discord.gg/JFdtgfzq)
    [![X](https://cdn-icons-png.flaticon.com/128/5968/5968958.png)](https://x.com/c4z1136807)
   
 <br>
